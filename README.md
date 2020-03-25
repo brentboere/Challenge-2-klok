@@ -1,2 +1,2 @@
-# Challenge 2 klok
+# Challenge 2 klok.
  
